@@ -1,0 +1,1 @@
+# SztucznaInteligencja_2020-2021
